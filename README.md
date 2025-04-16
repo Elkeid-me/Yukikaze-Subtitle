@@ -1,7 +1,7 @@
 # 《战斗妖精雪风》校对版字幕
 
 - 原字幕取自 https://bbs.acgrip.com/thread-6537-1-1.html
-- 本字幕匹配 https://nyaa.land/view/1676386
+- 本字幕匹配 https://nyaa.si/view/1676386
 
 做了如下改动：
 
